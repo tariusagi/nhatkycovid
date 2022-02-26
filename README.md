@@ -1,4 +1,4 @@
-# nhatkycovid
+# Nhật ký điều trị Covid 19
 
 Chia sẻ trải nghiệm của gia đình tôi trong đợt chữa trị Covid vừa diễn ra trong gần 2 tuần, từ 14/2/2022, hi vọng mọi người không cần. Các F0 gồm:
 
