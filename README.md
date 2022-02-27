@@ -44,7 +44,7 @@ Tối hôm đó, bác sĩ thông báo bà đã ổn hơn nhiều. Việc thở O
 
 Trong cùng ngày, vào buổi sáng, con trai tôi bị sốt cao 39.6, phải uống hạ sốt. Nghi ngờ cháu nhiễm Covid, vào buổi chiều, trong khi vợ tôi khám tại Phụ sản HN, tôi quay về cho test nhanh, thì cháu lên 2 vạch, tôi vẫn âm tính. Gọi PCR luôn cho 3 bố con và bác giúp việc.
 
-**Ngày thứ 9**, vào 10h sáng, kết quả PCR cho thấy cả 2 con tôi đều dương tính với chỉ số CT 25.6. Tuy nhiên cả 2 đều vui vẻ hoạt bát, con trai tôi vẫn có vài đợt sốt nhẹ, nhưng chỉ dưới 37 đến 37.3. Con gái tôi hoàn toàn bình thường. Vì phe F0 áp đảo, nhà tôi quyết định không cách ly, mà đeo khẩu trang, ăn uống riêng. Đến tối 22 thì con trai tôi cắt sốt hoàn toàn.
+**Ngày thứ 9**, vào 10h sáng, kết quả PCR cho thấy cả 2 con tôi đều dương tính với chỉ số CT 25.6. Tuy nhiên cả 2 đều vui vẻ hoạt bát, con trai tôi vẫn có vài đợt sốt nhẹ, nhưng chỉ dưới 37 đến 37.3. Con gái tôi hoàn toàn bình thường. Vì phe F0 áp đảo, nhà tôi quyết định không cách ly, mà đeo khẩu trang, ăn uống riêng. Đến tối thì con trai tôi cắt sốt hoàn toàn.
 
 **Bắt đầu từ sáng ngày thứ 10**, vợ tôi bắt đầu uống Oresol, và sau chừng vài giờ thì thấy đỡ mệt mỏi hẳn, đã có thể xuống giường đi lại nhẹ nhàng hơn. Đây là điểm rất quan trọng. Từ đó, vợ tôi uống Oresol thay nước.
 
